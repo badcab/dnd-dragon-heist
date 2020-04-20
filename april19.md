@@ -16,4 +16,4 @@ short silver sword
 
 latern
 
-copper or, weigh a lot
+copper ore, weigh a lot we will come back with a big teleport spell later
