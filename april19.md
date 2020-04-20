@@ -4,3 +4,11 @@ Cliff has 24 hours of being able to see hidden doors, we decided to back track a
 Nathan will go throgth the mystory door - but bad_cab did not live up to his end of the bargan
 got to a wall of skulls, sent a hiena over the wall
   hob goblins attacked up
+  
+ We found
+30 ft hemp rope
+glass of oil
+13 gp
+short silver sword
+latern
+copper or, weigh a lot
