@@ -7,8 +7,13 @@ got to a wall of skulls, sent a hiena over the wall
   
  We found
 30 ft hemp rope
+
 glass of oil
+
 13 gp
+
 short silver sword
+
 latern
+
 copper or, weigh a lot
